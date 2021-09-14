@@ -7,6 +7,6 @@
 
 爱好是打篮球，上面这张是我的照片
 
-窝小破站的地址是：  </span><span style="color: #7ed9bc;"><a style="color: #7ed9bc;" href="https://www.2cfan.com/">www.2cfan.com</a></span></h5>
+窝小破站的地址是： <span style="color: #7ed9bc;"><a style="color: #7ed9bc;" href="https://www.2cfan.com/">www.2cfan.com</a></span>
 
 欢迎━( *｀∀´* )ノ亻！常来次饭~
